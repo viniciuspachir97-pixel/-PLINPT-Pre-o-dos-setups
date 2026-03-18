@@ -1,1 +1,0 @@
-# -PLINPT-Pre-o-dos-setups
